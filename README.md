@@ -1,4 +1,4 @@
 R Assignment 1 for AI :
 anurag deshmukh
-10
-by nachiket tappas
+300012723009
+~Dr. Nachiket Tapas
